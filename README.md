@@ -37,6 +37,4 @@
 
 ### The growth of online activity: With the development of the Internet, more and more people prefer to communicate and collaborate through digital platforms. The creation of such a community is in line with current trends.
 
-### The need for cultural support: In the context of the pandemic and social restrictions, traditional forms of cultural exchange have proved difficult. An online community can be an alternative way to maintain creative activity.
-
 ### Prospects for the economy: The development of the music sector contributes to the creation of jobs, the growth of entrepreneurial activity and the attraction of investments.
